@@ -1,2 +1,5 @@
 # Project-LinkedIn
-New redesign concept
+
+### New redesign concept
+### Project theme: LinkedIn (Redesign)
+### Photoshop / Ilustrator / Adobe XD
